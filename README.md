@@ -1,4 +1,4 @@
-Five O'Clock Shadow
+Five O'Clock Shadow by [MrJack](http://forums.bethsoft.com/user/781645-mrjack/)
 ===================
 Latest version: 2.0.0
 
